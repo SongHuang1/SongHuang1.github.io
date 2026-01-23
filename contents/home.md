@@ -3,7 +3,7 @@
 
 #### Contact
 
-Email: weilaikeqi0808@163.com
+Email: huangsong5100@163.com
 
 #### Education
 西安电子科技大学 电子信息工程 本科 | 2027届应届毕业生 | 期望职位：人工智能算法工程师、人工智能研发工程师、软件开发工程师
